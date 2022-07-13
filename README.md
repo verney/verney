@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @verney
-- 👀 I’m interested in AI, and food
+- 👀 I’m interested in AI, Veganism. 
 - 🌱 I’m currently learning to play piano
 - 💞️ I’m looking to collaborate on any project that would advance freedom and equality 
 - 📫 How to reach me: verney@verney.net
